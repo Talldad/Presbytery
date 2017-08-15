@@ -1,10 +1,10 @@
-Moderator, the Presbytery account balance as at 31st January was $3284.82, reported in the February meeting as unchanged from November 2016.
+Moderator, the Presbytery account balance as reported at the previous meeting was $3675.92.
 
-Since then the Clerk's expenses have been approved and paid, and the balance as at the end of March became $3040.92.
+Since then proceeds of four levies for the current year have been banked and the balance as at the end of July was $4275.92.
 
-There being no further business since then, I am confident the balance remains the same today.
+Delivery of the payment for the audit was overlooked but will be completed in the next few days or so.
 
-I move that the Treasurer's report be received.
+There being no further activity, I move that the report be received.
 
 John Angelico
 Treasurer
