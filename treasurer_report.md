@@ -1,11 +1,16 @@
-Moderator, the Presbytery account balance as reported at the previous meeting was $3675.92.
+Moderator, the Presbytery account balance as reported at the previous meeting was $4670.92.
 
-Since then proceeds of four levies for the current year have been banked and the balance as at the end of July was $4275.92.
+Since then no further deposits have been made; that is, I have received no more levies.
 
-Delivery of the payment for the audit was overlooked but will be completed in the next few days or so.
+Again there was no interest paid across the entire period.
 
-There being no further activity, I move that the report be received.
+Due to my oversight and extreme busiy-ness the payments approved at the last regular meeting have only been made tonight and, as a consequence, the account balance on the statement as at the end of November remained unchanged at $4670.92.
+
+Subsequent to this meeting the balance will fall to 1970.92.
+
+I move that the report be received.
+
 
 John Angelico
 Treasurer
-
+13 Dec 2017
